@@ -2,5 +2,5 @@
 
 - 🏔️ Dharamshala, Himachal Pradesh
 - 👨🏻‍💻 Building Life in Mountains #Yoga & #Technology
-- 💻 Make Projects with @hackerfarmindia @hackerlabsindia
+- 💻 Make Projects with @hackerlabsindia
 - 📫 Email : rajanshu.ujjwal@gmail.com  
